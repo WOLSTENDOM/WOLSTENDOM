@@ -9,7 +9,7 @@ kamisato ayatos one and only
 
 
 Sign ata if ud like | int idc u can do whateva
-main interests- **the fallout franchise****umamusume**, **fear and hunger**, **muse(band)**,touhou, soulsborne, bandori, genshin, hsr, and overwatch
+main interests- **the fallout franchise**, **umamusume**, **fear and hunger**, **muse(band)**,touhou, soulsborne, bandori, genshin, hsr, and overwatch
 
 
 
