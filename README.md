@@ -4,8 +4,10 @@
 <img width="728" height="410" alt="tumblr_26b028e3b526c587eb8c645a725260c4_ad330cfb_1280" src="https://github.com/user-attachments/assets/d0792c7c-e17e-42e5-9e17-c05dc29a6312" />
 
 
+I AM LITERALLY DIGITAN BTW !
+<img width="200" height="200" alt="agnes-digital-umamusume" src="https://github.com/user-attachments/assets/c5bde7c5-4409-4e4d-b20d-7e6e2716270e" />
 
-kamisato ayatos one and only
+
 
 
 Sign ata if ud like | int idc u can do whateva
