@@ -11,11 +11,9 @@ I AM LITERALLY DIGITAN BTW !
 
 
 Sign ata if ud like | int idc u can do whateva
-main interests- **the fallout franchise**, **umamusume**, **fear and hunger**, **muse(band)**,touhou, soulsborne, bandori, genshin, hsr, and overwatch
-
-
-
-my favorite music artists are franz ferdinand, muse, jamiroquai, bob dylan, father john misty, the clash, black midi and black country new road :D
+not really into jojos anymore other than yoshikage kira and yasuho but i still interact with the fandom
+current things i Love are umamusume and muse (band). im fixated on yoshikage kira too idc im speaking and living my truth i love that guy
+im nice unless you are not nice to me first and do not like any sort of drama so do not try to include me in anything im not apart of.
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=6ggdy6fzat92hzu6fqee0bos0&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&profanity=false&bar_color=53b14f&bar_color_cover=false">
