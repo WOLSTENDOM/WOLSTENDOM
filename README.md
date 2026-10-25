@@ -6,7 +6,9 @@
 <img width="200" height="200" alt="agnes-digital-umamusume" src="https://github.com/user-attachments/assets/c5bde7c5-4409-4e4d-b20d-7e6e2716270e" />
 
 Sign ata if ud like | int idc u can do whateva
+
 not really into jojos anymore other than yoshikage kira and yasuho but i still interact with the fandom
+
 current things i Love are umamusume and muse (band). im fixated on yoshikage kira too idc im speaking and living my truth i love that guy
 
 im nice unless you are not nice to me first and I do not like any sort of drama so do not try to include me in anything im not apart of. thank u!
